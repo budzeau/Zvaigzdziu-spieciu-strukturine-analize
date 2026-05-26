@@ -1,0 +1,1 @@
+# Zvaigzdziu-spieciu-strukturine-analize
